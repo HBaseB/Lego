@@ -1,2 +1,2 @@
 # Lego
-Achieve greatness
+To Be Greatness
